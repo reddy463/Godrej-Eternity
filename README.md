@@ -1,0 +1,2 @@
+# Godrej-Eternity
+Godrej Eternity is a novel upcoming venture from Godrej Properties. This Project is located at Kanakapura Road as a part of South Bangalore. Sprawl across an area of 18 acres of land. Godrej Group is come up with an new apartment configurations like 2 &amp; 3 BHK . it includes with all latest amenities which incorporated within it. For More Info Visit Our Site &amp; Contact Us: http://www.godrejeternity.info/ 8884747474
